@@ -17,7 +17,7 @@ Explore the [GitHub](https://github.com/open-austin) | Check out the [website](h
 ## 🌙 26 Moons Creative 
 26 Moons Creative houses my multi-faceted personal work. I have two projects currently active under 26 Moons and am available to provide services for others. 
 - 👁️ Get support with Strategic Visioning, Communications, and Design via [26 Moons Creative Co](https://26moonscreative.co/)
-- 🧿 Dive into dream work, tarot, yoga, sound healing, and various esoteric arts with [Gato Curio](https://www.gatocurio.com/)
+- 🧿 Dive into dream work, tarot, yoga, sound healing, and various esoteric arts with [Fulsome Switch](https://www.fulsomeswitch.com/)
 
 ## 💞 Interested in Connecting? 
 As much as I'd love to be mysterious, I can be found all over the web. Find me hanging out in various Slack and Discord channels or.. <br>
