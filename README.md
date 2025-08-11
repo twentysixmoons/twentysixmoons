@@ -11,7 +11,7 @@ Explore the [GitHub](https://github.com/arachne-threat-intel/) | Check out the [
 Email me for all things Arachne related at vic@arachne.digital 
 
 ## ⭐️ Open Austin
-Open Austin is a 501c3 non-profit that addresses local social and civic challenges through creative uses of technology. The current Executive Director is [Liani Lye](https://github.com/lianilychee). I once served as the Co-Captain and Communications Lead and now support them in a volunteer community manager role. Find me online in Slack or at the occasional meetup in Austin,Texas. <br><br>
+Open Austin is a 501c3 non-profit that addresses local social and civic challenges through creative uses of technology. The current Executive Director is [Liani Lye](https://github.com/lianilychee). I once served as the Co-Captain and Communications Lead. Now I'm an avid supporter. Find me online in Slack.
 Explore the [GitHub](https://github.com/open-austin) | Check out the [website](https://github.com/open-austin) | Say Hello in [Slack](https://open-austin.slack.com/ssb/redirect)
 
 ## 🌙 26 Moons Creative 
